@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Firassoudeni
+- 👀 I Recently graduated from The Higher Institute of Arts and Multimedia of Manouba as a Game developer
+- 🌱 I’m currently studying Digital concept Art as a masters degree at The Higher Institute of Arts and Multimedia of Manouba
+- 💞️ I’m looking to find a job or a part time as a game developer 
+- 📫 How to reach me :
+- Linkedin <https://www.linkedin.com/in/firas-soudani-366614243>
+- Facebook <https://www.facebook.com/Majer.buscus>
+- Phone Number <+216 22986966>
